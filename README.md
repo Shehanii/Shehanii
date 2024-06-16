@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/" target="blank"><img src="https://img.shields.io/twitter/follow/?logo=twitter&style=for-the-badge" alt="" /></a> </p>
 
-- 📫 How to reach me **shehani.samarathunga18@gmail.com**
+- 📫 How to reach me **shehaniy9@gmail.com**
 
 - ⚡ Fun fact **Call me as shey**
 
